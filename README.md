@@ -7,3 +7,4 @@ You can support my work via
 - ko-fi: [ko-fi](https://ko-fi.com/nikkicoon)
 - BTC: bc1qlx52rddxh86mgstr4ufg7r9c6h67rmweemmaju
 - ETH: 0x00b3cFCfa80dFb92FeE339a53F37264894CD46bd
+- bandcamp: [wishlist](https://bandcamp.com/hikingtrashpanda/wishlist) (name on there for gifts: hikingtrashpanda)
